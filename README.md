@@ -35,5 +35,7 @@ Tema: La democratización del acceso al financiamiento PyME ¿Cómo Cumplo ayuda
 Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de América.
 ![25 enero](https://user-images.githubusercontent.com/116225109/212964215-7483bcf0-c4a0-43ce-9fa6-a1b7f69ec873.png)
 
+# Manual Orador
+
 
 
