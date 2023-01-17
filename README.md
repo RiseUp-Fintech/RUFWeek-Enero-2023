@@ -27,13 +27,15 @@ Banner Página
 23 de enero de 5:00 a 6:00 pm horario Ciudad de México.
 Tema escogido: Ciberseguridad 101 para Startups y PyMes.
 Representante: Santiago Fuentes Rivera, CEO de Delta Protect.
-![23 enero](https://user-images.githubusercontent.com/116225109/212964191-bce33194-802a-48dd-b431-df74f5e56951.png)
+
+![23 enero](https://user-images.githubusercontent.com/116225109/213023141-17c5e615-4355-4451-9a96-2cf9c68fbc2b.png)
 
 
 25 enero 2023, 16:30 -18:30 hora Centro de México
 Tema: La democratización del acceso al financiamiento PyME ¿Cómo Cumplo ayuda socialmente a sus mercados?
 Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de América.
-![25 enero](https://user-images.githubusercontent.com/116225109/212964215-7483bcf0-c4a0-43ce-9fa6-a1b7f69ec873.png)
+
+![25 enero-1](https://user-images.githubusercontent.com/116225109/213023179-8fb20868-7472-4edb-baf3-e10388127123.png)
 
 # Post invitación evento
 
@@ -41,6 +43,8 @@ Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de Am
 
 
 # Manual Orador
+[manual orador_compressed.pdf](https://github.com/RiseUp-Fintech/RUFWeek-Enero-2023/files/10439755/manual.orador_compressed.pdf)
+
 
 
 
