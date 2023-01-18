@@ -31,7 +31,8 @@ Representante: Santiago Fuentes Rivera, CEO de Delta Protect.
 ![23 enero](https://user-images.githubusercontent.com/116225109/213023141-17c5e615-4355-4451-9a96-2cf9c68fbc2b.png)
 
 24 enero 2023
-![24 enero](https://user-images.githubusercontent.com/116225109/213310140-288c5d87-8f7a-4399-bcad-52c4551d1d18.png)
+
+![26 enero](https://user-images.githubusercontent.com/116225109/213310201-4992da9b-1648-4f48-96f4-09eae5782feb.png)
 
 
 
@@ -42,7 +43,8 @@ Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de Am
 ![25 enero](https://user-images.githubusercontent.com/116225109/213222229-d132470d-f86c-4387-817d-cd76a54066fd.png)
 
 26 enero 2023
-![26 enero](https://user-images.githubusercontent.com/116225109/213309554-0ed32757-38ee-40f5-bbe5-eb53c6194748.png)
+![24 enero](https://user-images.githubusercontent.com/116225109/213310212-c2dfeebf-6073-441e-a114-49e433d87b42.png)
+
 
 # Post invitación evento
 
