@@ -35,7 +35,7 @@ Representante: Santiago Fuentes Rivera, CEO de Delta Protect.
 Tema: La democratización del acceso al financiamiento PyME ¿Cómo Cumplo ayuda socialmente a sus mercados?
 Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de América.
 
-![25 enero-1](https://user-images.githubusercontent.com/116225109/213023179-8fb20868-7472-4edb-baf3-e10388127123.png)
+![25 enero](https://user-images.githubusercontent.com/116225109/213222229-d132470d-f86c-4387-817d-cd76a54066fd.png)
 
 # Post invitación evento
 
