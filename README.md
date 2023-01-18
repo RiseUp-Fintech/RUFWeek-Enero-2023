@@ -30,12 +30,18 @@ Representante: Santiago Fuentes Rivera, CEO de Delta Protect.
 
 ![23 enero](https://user-images.githubusercontent.com/116225109/213023141-17c5e615-4355-4451-9a96-2cf9c68fbc2b.png)
 
+24 enero 2023
+![24 enero](https://user-images.githubusercontent.com/116225109/213309545-010ab83c-1318-4712-aed0-1fde9c2249f8.png)
+
 
 25 enero 2023, 16:30 -18:30 hora Centro de México
 Tema: La democratización del acceso al financiamiento PyME ¿Cómo Cumplo ayuda socialmente a sus mercados?
 Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de América.
 
 ![25 enero](https://user-images.githubusercontent.com/116225109/213222229-d132470d-f86c-4387-817d-cd76a54066fd.png)
+
+26 enero 2023
+![26 enero](https://user-images.githubusercontent.com/116225109/213309554-0ed32757-38ee-40f5-bbe5-eb53c6194748.png)
 
 # Post invitación evento
 
