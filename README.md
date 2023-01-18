@@ -43,7 +43,8 @@ Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de Am
 ![25 enero](https://user-images.githubusercontent.com/116225109/213222229-d132470d-f86c-4387-817d-cd76a54066fd.png)
 
 26 enero 2023
-![24 enero](https://user-images.githubusercontent.com/116225109/213310212-c2dfeebf-6073-441e-a114-49e433d87b42.png)
+![24 enero](https://user-images.githubusercontent.com/116225109/213310400-bb765feb-abea-47d5-b7d4-35ff5de988e3.png)
+
 
 
 # Post invitación evento
