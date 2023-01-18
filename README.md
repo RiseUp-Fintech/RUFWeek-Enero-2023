@@ -31,7 +31,8 @@ Representante: Santiago Fuentes Rivera, CEO de Delta Protect.
 ![23 enero](https://user-images.githubusercontent.com/116225109/213023141-17c5e615-4355-4451-9a96-2cf9c68fbc2b.png)
 
 24 enero 2023
-![24 enero](https://user-images.githubusercontent.com/116225109/213309545-010ab83c-1318-4712-aed0-1fde9c2249f8.png)
+![24 enero](https://user-images.githubusercontent.com/116225109/213310140-288c5d87-8f7a-4399-bcad-52c4551d1d18.png)
+
 
 
 25 enero 2023, 16:30 -18:30 hora Centro de México
