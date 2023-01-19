@@ -32,7 +32,8 @@ Representante: Santiago Fuentes Rivera, CEO de Delta Protect.
 
 24 enero 2023
 
-![26 enero](https://user-images.githubusercontent.com/116225109/213310201-4992da9b-1648-4f48-96f4-09eae5782feb.png)
+![24 enero](https://user-images.githubusercontent.com/116225109/213501030-86b1e851-f51e-4630-bac7-8ccd12d84785.png)
+
 
 
 
@@ -54,8 +55,9 @@ Representante: Alejandro Villalobos, Director de Cumplo para el Cono Norte de Am
 
 
 # Manual Orador
-[manual orador_compressed.pdf](https://github.com/RiseUp-Fintech/RUFWeek-Enero-2023/files/10439755/manual.orador_compressed.pdf)
 
+
+[manual orador_pdf.pdf](https://github.com/RiseUp-Fintech/RUFWeek-Enero-2023/files/10458694/manual.orador_pdf.pdf)
 
 
 
