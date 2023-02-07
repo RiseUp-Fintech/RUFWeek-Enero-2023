@@ -1,6 +1,10 @@
 # RUFWeek-Enero-2023
 
 RUF! Week 23 - 27 Enero 2023
+Resum
+![ESP RUFweek enero](https://user-images.githubusercontent.com/116225109/217370018-0d4b9434-e48e-4b5f-97f6-4c70233b8ab5.png)
+
+
 
 # Acerca de RUF! Week
 Convocamos a todas esas empresas que aportan a la biodiversidad del sector a que nos compartan su pericia en esos temas que los hacen únicos en el ecosistema, en el formato de charlas con temas de interés para todos los espectadores.
